@@ -1,1 +1,0 @@
-# Regime-Shift-SOQ-26-
